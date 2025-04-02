@@ -48,8 +48,23 @@ hii.      hei.  .    . how you doin.
 
 -if I have like.   afk in my name,, uou can stoll interact trist just be pationt I'm NOT afk much
 
+★MY FAVOURTIE ARTISTS!!! 
 
-★MY ART!!! 
+-alex g
+
+-LAUFEYYY
+
+-beabadoobee
+
+-macdemarco
+
+-gigi perez
+
+-chapell roan
+
+-plus a hundred but but these
+
+★MY ART!!!
 
 idk how to insert a png
 ٭★★
