@@ -2,12 +2,15 @@ hii.      hei.  .    . how you doin.
 
 ★info
 
+-MY DISC IS i.l0ve.Cosm0
+
 -my names harvey and sprout! 
 -I use he it,, (becaus I'll NEVER be him/JOOKE) 
 
 -I like. . . games, drawing (EXAMPLES OF MY ART AT THE END!!!), crocheting, singing, GAMING!!! , studying,, and sleeping
 
 -I LOVE cosmo he's my husbajd. 
+
 -sprout IRL trust.!!! 
 
 -my fav games dandys world and forsaken,, 
@@ -52,6 +55,8 @@ hii.      hei.  .    . how you doin.
 
 -alex g
 
+-NATALIE JINJUUUU
+
 -LAUFEYYY
 
 -beabadoobee
@@ -66,7 +71,7 @@ hii.      hei.  .    . how you doin.
 
 ★MY ART!!!
 
-idk how to insert a png
+idk how to insert a png inser.tpng
 ٭★★
 <!---
 h4rv3yke3psonpl4yingwhisfood/h4rv3yke3psonpl4yingwhisfood is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
