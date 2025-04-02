@@ -1,7 +1,12 @@
 hii.      hei.  .    . how you doin. 
 
-clall me HARVEY or MYLER or COZIE IF WE'RE CLOSE!! 
-I use he/it pronouns.  because I'll nevr be him💔
+★info
+-my names harvey and sprout! 
+-I use he it,, (becaus I'll NEVER be him/JOOKE) 
+-I like. . . games, drawing (EXAMPLES OF MY ART AT THE END!!!), crocheting, singing, GAMING!!! , studying,, and sleeping
+-I LOVE cosmo he's my husbajd. 
+-sprout IRL trust.!!! 
+-my fav games dandys world and forsaken,, 
 
 
 <!---
