@@ -33,6 +33,8 @@ hii.      hei.  .    . how you doin.
 
 -getting into honmestuck
 
+-REGRETEVATOR HIHIHIHH
+
 -alien stage
 
 ★VERY VERY IMPORTANT
@@ -77,3 +79,11 @@ idk how to insert a png inser.tpng
 h4rv3yke3psonpl4yingwhisfood/h4rv3yke3psonpl4yingwhisfood is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+ok shurup
+Aanyay
+ ✭cool stuff
+-I,, LOOOOOOOOOOOOOOOOOOOOOOOOVE cakefruit,,, if you don't like that do NOT tell me that a ship is better just keep it simple1,, and I absolufely love it wjen my friends turn into sprout on purpose to make me happy when I'm Cosmo bro(THSNK UOU) 
+-ballerina cappucina irl
+-I'm veri smart
+-poob irl
