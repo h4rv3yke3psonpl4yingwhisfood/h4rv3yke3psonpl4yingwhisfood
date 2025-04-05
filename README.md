@@ -2,7 +2,7 @@ hii.      hei.  .    . how you doin.
 
 ★info
 
--MY DISC IS i.l0ve.Cosm0
+-MY DISC IS harvevq
 
 -my names harvey and sprout! 
 -I use he it,, (becaus I'll NEVER be him/JOOKE) 
